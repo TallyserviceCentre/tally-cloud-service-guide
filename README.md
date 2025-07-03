@@ -1,6 +1,6 @@
 # 🌐 Tally on Cloud Services for Indian Businesses
 
-Experience fast, secure, and affordable Tally on Cloud hosting — accessible anytime, anywhere. Ideal for small to large enterprises across India.
+Experience fast, secure, and affordable Tally on Cloud hosting - accessible anytime, anywhere. Ideal for small to large enterprises across India.
 
 👉 Visit Our Website: [Tally Service Centre](https://tallyservicecentre.com)
 
